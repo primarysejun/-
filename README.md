@@ -1,2 +1,0 @@
-# -
-primaryjun.dothome.co.kr
